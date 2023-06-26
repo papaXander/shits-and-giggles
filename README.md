@@ -1,2 +1,2 @@
 # shits-and-giggles
-idk what im doing
+why is github so confusing
